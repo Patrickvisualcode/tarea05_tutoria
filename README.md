@@ -15,6 +15,7 @@ Si tuviera un año de vida, lo que haria seria considerar mas mi rutina habitual
 --------------------------------------------------------------------------------
 
  Parte 2: Actividad en parejas
+ 
 COMPAÑERE: Alcantara Rodriguez Yadhira
 
 Fortalezas en momentos difíciles: Comparte una experiencia en la que hayas sentido que nada tenía sentido y cómo lo superaste. Reflexiona sobre las lecciones aprendidas.
